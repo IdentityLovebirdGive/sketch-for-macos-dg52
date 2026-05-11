@@ -1,4 +1,4 @@
-# 
+# Sketch for macOS rare Extension - shortcut customization and version history is the best Sketch for macOS extension, featuring shortcut customization and version history. Safe,
 
 
 
